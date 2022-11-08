@@ -1,5 +1,5 @@
 # Proxy-Checker-by-xRisky-v2
-You can down load in site : https://mega.nz/file/h1NABJLA#i0U3vcbgBQ0GgkEbeJKKG6YNzHjDBKLSvIDcJi5paes
+You can down load in site : https://mega.nz/file/490nnDYA#_CWY5U444095SAfPImUL3rA1WTef06JSIjcoNa9GC5Q
 
 
 
